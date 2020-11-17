@@ -1,0 +1,1 @@
+# LogoPlaces_draft1
